@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GURA010329MDFRSMA1
+GURA010329MDFRSMA1
